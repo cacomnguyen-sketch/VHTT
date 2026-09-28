@@ -1,1 +1,54 @@
-# VHTT
+Câu chuyện cũ hay nhất: Adam và Eva
+Tác giả James Sale
+
+"Sự sụp đổ của con người", 1616, bởi Hendrick Goltzius. Phòng trưng bày nghệ thuật quốc gia. (Everett - Nghệ thuật / Shutterstock)
+Ngày 16 tháng 10 năm 2019
+Trong bài viết trước của tôi cho Thời Báo Epoch Times, “Thế giới chúng ta đang sai chỗ nào vậy”, tôi đã đưa ra một sự thật là tồn tại một thứ mà tôi gọi là “ba hành vi tâm lý học sai trái căn bản”, gây ra nhiều phiền toái cho nhân loại chúng ta, 3 vấn đề tâm lý học này đã được nhìn thấy từ rất xa xưa, từ lúc khởi thủy của nhân loại.
+Thật vậy, đó là một thú vui đã có từ rất lâu khi tìm hiểu các tích xưa cũ. Tưởng như đơn giản chỉ là các câu chuyện được kể lại, thế mà chúng lại có vẻ chứa đựng nhiều huyền cơ ngày càng được khám phá, câu chuyện về Adam và Eva là một minh chứng hoàn hảo.
+Đổ lỗi - Giảo biện - Chối bỏ:
+Trước tiên, hãy cùng điểm lại đâu là 3 hành vi sai trái căn bản của tâm lý con người. 
+* Thứ nhất, nhân loại chúng ta thường đầu tiên là đổ lỗi cho người khác, đặc biệt là khi chúng ta mắc lỗi lầm;
+* Thứ nhì, giảo biện dựa trên nỗi sợ, sự bất an, động cơ của chúng ta;
+* Và thứ ba, chối bỏ sự thật, rằng chúng ta không chấp nhận cách sự việc diễn ra ngay cả khi chứng cứ đã rành rành trước mặt. Hành vi chối bỏ sau cùng này không cần tranh cãi, rõ ràng là tệ hại nhất. Bất kể bằng chứng gì, một số người khăng khăng khước từ nó vì họ bảo thủ định kiến của mình là đúng. 
+Lấy ví dụ, ông Fred Hoyle, một khoa học gia lỗi lạc người Anh của thế kỷ 20 đã chối bỏ bằng chứng về vụ nổ Big Bang rằng Vũ trụ có sự khởi đầu cho đến tận ngày ông mất năm 2001. Một phần sự chối bỏ này hoàn toàn có thể lý giải được: Ông cho rằng lý thuyết trên là giả tưởng bởi vì như ông trả lời phỏng vấn của BBC: “Sâu thẳm trong tâm trí phần lớn nhà khoa học, là không tin vào trang đầu tiên của Sáng Thế Ký”. Một cách điên rồ nào đó, chúng ta chối bỏ hiện thực vốn có và áp đặt những điều vô thực mà chúng ta mong muốn hoặc lựa chọn.
+Câu hỏi đầu tiên.
+Nhưng vậy thì sao, liệu truyền thuyết Adam và Eva có thật sự thể hiện ba đại hành vi sai trái căn bản trên hay không? Theo như câu chuyện ở Chương 3 Sáng Thế Ký, trong đoạn đầu tiên, chúng ta thấy mô tả về con Rắn lớn, “xảo quyệt hơn bất kì dã thú nào”, và nó đang nói.
+Ở đây có 2 điểm cần lưu ý: 
+* Thứ nhất, nếu con rắn “đang nói”, vậy thì như tôi hiểu, rõ ràng chúng ta không phải nói về loài rắn thông thường mà là một thứ gì hoặc ai đó mạnh hơn, tinh khôn hơn, có thể con Rắn lớn ấy chỉ là một hình thức ẩn dụ, một biểu tượng mà chúng ta có thể mường tượng. Nói cách khác, chúng ta đang ở trong vườn thơ, nơi mà sự thật biểu lộ một cách khó diễn đạt.
+* Thứ nhì, chúng ta lưu ý rằng ngay sau 2 chương đầu gồm 56 đoạn, chúng ta gặp ngay câu thẩm vấn của Rắn. Thực tế, đây là câu hỏi đầu tiên được viết lại trong Kinh Thánh: “Có phải Chúa Trời thực sự đã dạy rằng ‘Con không được ăn bất kỳ trái cây nào trong vườn địa đàng’?”
+Chúng ta lập tức nhận ra sự xảo quyệt của con Rắn (Eva thì không) rằng Đức Chúa Trời không dạy là “Con không được ăn bất kỳ trái cây nào,” mà là “Con được tự do ăn các thứ hoa quả trong vườn, nhưng quả của cây hiểu biết điều thiện và điều ác thì chớ có ăn đến”. Nói cách khác, lệnh cấm chỉ được áp dụng cho 1 loài cây cụ thể. Tất nhiên, con rắn đã phóng đại lên sự cấm đoán cho nó có vẻ tồi tệ hơn.
+Chúng ta có thể suy ra hình thức tiếp thị này, ấy là sự phóng đại, phóng đại đã khởi tạo nên nghi tâm đầu tiên của Eva, nghi tâm đầu tiên của nhân loại. Cô ấy nghĩ: Thực tế Chúa đã nói gì? Rất nhanh chóng, cô lại có thêm sự nghi ngờ nghiêm trọng hơn, không chính xác Chúa đã nói gì, liệu những lời Chúa có đúng không. Họ có chết khi ăn trái cấm không? Tin lời Rắn, cô nghĩ là: Không! Và ẩn chứa dưới câu hỏi này là một câu hỏi sâu sắc hơn nhiều: Tạo hóa có “tốt” như Chúa đã khẳng định trong chương 1 hay không?
+Con Rắn đã chiêu dụ Eva nghi ngờ sự tốt đẹp của tạo hóa, của thế giới, và của chính chúng ta. Chúng ta có tốt không?
+
+
+“Adam và Eva với quả táo và con Rắn lớn” vẽ bởi Marcantonio Raimondi, sau Albrecht Dürer. Bảo tàng nghệ thuật Metropolitan. (Phạm vi công cộng)
+Bỏ Thiện lại phía sau
+Và câu trả lời dĩ nhiên là chúng ta không tốt, bởi vì Adam và Eva đã chọn Ác cũng như chúng ta hiện nay. Nghĩa bóng hay thậm chí cả nghĩa đen, họ đã ăn phải điều Ác (biểu tượng bởi Trái Cấm) và hành động bắt đầu thay đổi hẳn. Cũng giống như ma túy xâm nhập cơ thể, những triệu chứng ban đầu của chất độc có thể rất nhẹ, nhưng dần dần, ảo giác sẽ ngày càng thay thế thực tại đến mức không còn có thể kiểm soát được.
+Và bây giờ, chúng ta sẽ thấy các hành vi tâm lý sai trái bắt đầu hiện rõ. Đầu tiên, Adam chối bỏ lỗi lầm của mình. Chúa đã hỏi trực tiếp rằng “Có phải con đã ăn?…”, anh ta nói không rõ ràng, Anh ta không có tội vì anh ta đổ lỗi cho Eva và cô ta chịu trách nhiệm cho những hành động của anh ấy. Hãy xem cách anh ta nói “Con đã ăn” ở cuối câu của anh ta: “Người phụ nữ Người tạo ra để chung sống với con, cô ta hái trên cây và đưa cho con, rồi con đã ăn”, như thể anh ta xa lánh họ vì vậy mà họ càng xa anh ta càng tốt, được thấy rõ qua cấu trúc của câu trả lời. 
+Như vậy sự chối bỏ và đổ lỗi đã tạo ra hiệu ứng kép! Eva đột nhiên thấy mình hoàn toàn chịu trách nhiệm cho sai lầm, ngay lập tức dùng cách biện hộ tương tự. Câu trả lời của cô ít vòng vo hơn, nhưng nó vẫn là đổ lỗi: “Con Rắn dụ dỗ con, và con đã ăn”
+Cả hai, sau đó, cá nhân và tập thể, tuyên bố rằng họ không chịu trách nhiệm về hành động của mình và đổ lỗi cho kẻ khác. Chắc chắn, điều này cũng hoàn toàn không xa lạ với chúng ta. Có phải chúng ta tránh khỏi tội của mình vì chúng ta bị ai đó lừa dối khi chúng ta phạm lỗi? Chắc chắn tại tòa án thì lý do này thường xuyên được sử dụng. Tuy nhiên, ở đây việc đổ lỗi và chối bỏ là vô dụng.
+Adam có thể chối bỏ gì? Hành động của anh ta (và cả của Eva) muốn dùng trang phục, để che đậy cơ thể mình là bằng chứng có thể thấy rõ ràng tội lỗi của anh ta.
+Cuộc sống thật tồi tệ.
+Đỉnh điểm của những lời chối bỏ và đổ lỗi ấy, thật thú vị, họ giảo biện tội lỗi của mình. Thật khó tin khi chúng ta nghĩ lại, Adam - anh ta dám giảo biện tội lỗi của mình về cho Chúa của anh ta! “Người phụ nữ Ngài ban cho con, Cô ấy đưa con…” Nói cách khác, chính hành động của Người đã tạo nên lỗi lầm này. Nếu Người không trao Eva cho con, con đã không ăn, lỗi của con chính là lỗi của Người; nếu con làm sai điều gì, là vì Người đã làm sai trước.
+Hoặc, một khả năng khác là trái ngược lại với những gì Chúa nói, cuộc sống là tồi tệ. Trong khoảnh khắc tâm lý và tinh thần mạnh mẽ này, tạo vật dám qui tội lại Đấng Sáng Tạo, cáo buộc tội lỗi và hành vi sai trái của Người.
+
+“Lời trách phạt cho Adam và Eva,”1740, by Charles Joseph Natoire. Bảo tàng nghệ thuật Metropolitan. (Phạm vi công cộng)
+
+Eva làm cách khác. Thay vì giảo biện tội lỗi về cho Đức Chúa, Cô cáo buộc tội lỗi và hành vi sai trái về cho con Rắn, kẻ đã lừa dối cô. Tất nhiên hãy nhớ rằng, Chúa cũng đã tạo ra con Rắn, do đó cũng là cáo buộc gián tiếp để đổ lỗi cho Ngài!
+Eva nói có vẻ rất thẳng thắn, nhưng nếu chúng ta xét lại câu chữ, chúng ta thấy một vài điểm khá khác lạ so với sự thiếu chú ý đơn giản. Đầu tiên, cô nghe theo con Rắn, sau đó cô thấy rằng cái cây là “thức ăn tốt” và “nhìn thật ngon mắt”, và chính cái cây đó là “kỳ vọng làm cho người ta khôn ngoan”. Hoàn toàn gợi cảm (và các bút giả sau này, ví dụ như Milton trong “Paradise Lost – Thiên đường bị đánh mất”, cũng đã thêm sự gợi cảm) bữa tiệc đã diễn ra ở đây: cô ấy nghe, cô ấy thấy, cô ấy nếm trải và nổi thống khổ ham muốn. 
+Tất nhiên, không có gì sai với trải nghiệm khoái lạc, vì thế giới là tươi đẹp, nhưng việc mà Eva đang làm, dù bị dẫn dụ bởi sự xảo quyệt của con Rắn, chính là lý do cốt lõi tại sao cô ta không thể cưỡng lại việc ăn Trái Cấm. Nói cách khác, vẻ đẹp của thế giới (mà Chúa tạo ra) đã dụ dỗ cô mắc lỗi. Cô yêu các tạo vật mà Chúa tạo ra hơn cả chính Đức Sáng tạo, và vì thế phá vỡ niềm tin.
+Và có thể vượt trên các lí do khoái cảm, cô ấy còn lý do về nhận thức: mong muốn sở hữu được trí tuệ- một tham vọng mãnh liệt để trở thành Chúa hoặc giống như Chúa. Mong muốn báng bổ này còn ẩn chứa trong đó một lời phê phán khác cho Đấng Sáng Tạo, nó ngụ ý một khiếm khuyết của sáng tạo, rằng cô ta và Adam không đủ khôn ngoan.
+Cô đổ lỗi hết cho con Rắn, nhưng Cô cũng giảo biện thêm cho nó: con Rắn thật sự phải chịu mọi trách nhiệm cho sự thiếu hoàn hảo của sáng tạo, tuy nhiên Chúa là mục tiêu thực sự vì Ngài cũng tạo ra con Rắn.
+Tất cả những điều này đồng thời là như thế nào! Bởi vì hầu hết phản đối phổ biến nhất đối với  sự tồn tại của Chúa là vì sao hay như thế nào mà Chúa để cái ác được phép tồn tại. 
+Tuy nhiên, nếu chúng ta xem xét cách lý giải của Thiên Chúa Giáo về những lời này, Chúa - được biết đến, được cho rằng là có lòng từ bi - dường như chấp thuận cả hai sự giảo biện. Trong trường hợp quả quyết của Eva, chúng ta học được từ lời nguyền của Chúa rằng loài rắn bị phán quyết, nó sẽ bị thương ở đầu rồi tử vong, trong khi Rắn chỉ có thể làm tổn thương gót chân Adam, không gây tử vong, đây cũng được xem như một lời tiên tri về vết thương của chúa Jesus trên thập tự giá.
+Đối với giảo biện của Adam, Chúa đã trở thành người để cuối cùng nhận lãnh hình phạt vì lỗi lầm của con người. Chúa đã chuộc tội vì chỉ làm ra “cái tốt” thay vì cái “hoàn hảo” (vì tạo vật hoàn hảo sẽ không mắc sai lầm)- điều đã được St.Augustine nhắc đến như sự Sụp đổ may mắn (Felix culpa)  khi mà nhân loại có thể đạt được cái tốt đẹp hơn nếu biết sửa sai những lỗi lầm của mình.
+Hậu quả của đổ lỗi, giảo biện và chối bỏ
+Như trên chúng ta cuối cùng có được điểm Rơi của hai người tốt, một đàn ông và một đàn bà, ai bây giờ cuối cùng phải chịu đựng sự đổ lỗi, giảo biện và chối bỏ. Và nếu hậu quả của nó tồi tệ khi đối mặt với Đức Chúa, song họ lại hiếm khi sợ khi đối đầu với nhau.
+Để thấy toàn bộ sự ảnh hưởng của sự xem xét này, hãy để mắt đến một tình hình một vài năm sau: “Abel, em của con đâu?” và Cain đáp lại thế nào? Chối bỏ. “Con không biết.” Lịch sử đẫm máu của thế giới bắt đầu. 
+Hãy tự kiểm điểm chính bạn: Bạn thường xuyên đổ lỗi cho người khác về vấn đề và khó khăn của bản thân mình như thế nào? Bạn thường giảo biện đổ tội cho người khác như thế nào - hàng xóm, chủng tộc, giới tính, độ tuổi,… những vấn đề nào đang bám rễ bên trong bạn?
+Và cuối cùng, bạn có đang chối bỏ không? Sự thật nào bạn không chấp nhận? Có thể chối bỏ ngày bạn chết không? Những thứ đó dù là ở cá nhân, địa phương, quốc gia, hay tầm cỡ quốc tế là những gì cái Ác đang lèo lái ngày nay. Lỗi lầm là trong chúng ta, cho đến khi chúng ta nhìn nhận nó và chịu trách nhiệm, chúng ta không thể sửa chữa được tình hình mà chỉ làm tồi tệ hơn thôi! Câu chuyện Adam và Eva đã nói rõ cho chúng ta rất nhiều điều.
+
+Tất cả trích dẫn lấy từ Kinh Thánh bản tiêu chuẩn Mỹ quốc mới nhất.
+James Sale là một doanh nhân người Anh, Chủ công ty Motivational Maps đang hoạt động tại 14 quốc gia. Ông là tác giả của hơn 40 đầu sách về quản trị và giáo dục từ các nhà xuất bản quốc tế lớn bao gồm Macmillan, Pearson. Là một nhà thơ, ông đạt giải nhất của The Society of Classical Poets’ 2017 và hiện là phát ngôn tại Câu lạc bộ Princeton New York.
+
+
